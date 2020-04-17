@@ -1,5 +1,1 @@
-La Formula 1 o Formula Uno,[1] in sigla F1, è la massima categoria (in termini prestazionali) di vetture monoposto a ruote scoperte da corsa su circuito definita dalla Federazione Internazionale dell'Automobile (FIA).
-
-La categoria è nata nel 1948 (in sostituzione della Formula A, a sua volta sorta solo qualche anno prima, nel 1946), diventando poi a carattere mondiale nella stagione 1950. Inizialmente definita dalla Commissione Sportiva Internazionale (CSI) dell'Associazione Internazionale degli Automobil Club Riconosciuti (AIACR), associazione antesignana della Federazione Internazionale dell'Automobile, oggi la Formula Uno è regolata dal Consiglio Mondiale degli Sport Motoristici (in inglese: World Motor Sport Council, WMSC) della FIA.
-
-Il termine "formula", presente nel nome, fa riferimento a un insieme di regole alle quali tutti i partecipanti, le macchine e i piloti, devono adeguarsi; esse introducono un numero di restrizioni e specifiche nelle auto, al fine di evitare le eccessive disparità tecniche tra le auto, di porre dei limiti al loro sviluppo e di ridurre i rischi di incidenti. La formula ha avuto molti cambiamenti durante la sua storia. Ad esempio, ci sono stati differenti tipi di motori, con schemi da quattro fino a sedici cilindri e con cilindrate da 1,5 a 4,5.
+Prova
